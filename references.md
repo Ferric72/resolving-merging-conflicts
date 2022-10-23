@@ -1,3 +1,9 @@
 # References
 
-* octocat 1 😈
+## Supreme Leader of the Galactic Empire
+
+## Larry
+
+## Curly
+
+## Moe
